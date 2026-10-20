@@ -165,7 +165,28 @@ O Saint Joseph, foster father of our Lord Jesus Christ and true spouse of the Vi
 O Saint Joseph, father and protector of virgins, to whose faithful keeping Christ Jesus, innocence itself, and Mary, the virgin of virgins, were entrusted, I pray and beseech you by that twofold and most precious charge, by Jesus and Mary, to preserve me from every defilement of mind and body, that I may always serve Jesus and Mary in perfect chastity. Amen.
 
 ### Chapter 2: Non-Written Traditions of Saint Joseph
-Traditions concerning Saint Joseph’s flowering staff, his age, the tools of his trade, and the location of his relics have circulated for centuries. Many are corroborated by the mystics already cited in Part I (especially Mary of Ágreda and Anne Catherine Emmerich). These oral and artistic traditions are presented here for edification.
+
+Many details about Saint Joseph that are not recorded in the Gospels have been handed down through oral tradition, apocryphal writings, artistic convention, and the private revelations of approved mystics. These are presented here for edification, not as equal to Scripture.
+
+**The Flowering Staff**  
+According to long-standing tradition, when the high priest sought a spouse for the Virgin Mary, the eligible men of the house of David brought their staffs to the Temple. Joseph’s staff alone blossomed, and a dove descended upon it, indicating God’s choice. This episode appears in the *Protoevangelium of James* (2nd century) and is described in detail by Venerable Mary of Ágreda in *Mystical City of God*. It is also confirmed in the visions of Blessed Anne Catherine Emmerich. The flowering rod became the standard attribute of Saint Joseph in Christian art.
+
+**His Age**  
+Tradition generally portrays Saint Joseph as an older man at the time of his marriage to Mary, often around forty or more, though some later writers have suggested a younger age. The mystics (Ágreda, Emmerich) describe him as mature, dignified, and already advanced in years compared with the young Virgin. No exact age is given in Scripture.
+
+**His Trade and Tools**  
+Scripture calls him a *tekton* (craftsman or carpenter). Tradition and the mystics consistently show him working with wood—making plows, yokes, and household items—and later working in Egypt and Nazareth. The tools of his trade (saw, auger, plane, square) appear frequently in art and are corroborated by the detailed workshop scenes in the visions of Ágreda and Emmerich.
+
+**The Flight into Egypt and the Sojourn There**  
+While the Gospels give only the bare fact of the flight, tradition and the mystics supply a longer stay in Heliopolis (or nearby), with Joseph supporting the Holy Family by his labor. Relics and local traditions in Egypt still mark places associated with their residence.
+
+**His Death**  
+Scripture is silent about the death of Saint Joseph. Tradition and the mystics place it in Nazareth, in the arms of Jesus and Mary, before the public ministry of Christ. This is the basis for the devotion to Saint Joseph as patron of a happy death. The detailed accounts in Ágreda and Emmerich describe his peaceful passing after a life of labor and obedience.
+
+**Relics**  
+Various traditions locate the staff of Saint Joseph, the tools of his trade, or portions of his remains in different places (including claims associated with churches in Italy and the Holy Land). None of these claims have the same weight as the Gospel accounts, but they reflect the long popular devotion to the saint.
+
+These non-written traditions are consistent with the character of the just man presented in the Gospels and are supported by the longer extracts from the approved mystics already given in Part I.
 
 ### Chapter 3: The First Hymn to Saint Joseph and the Origin of Musical Notation
 The earliest known hymn addressed to Saint Joseph appears in the medieval period. A brief note on the development of Western musical notation will be placed here so that the reader may see how the devotion that began in silence came to be sung.
