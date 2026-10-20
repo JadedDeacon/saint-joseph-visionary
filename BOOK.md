@@ -3,7 +3,8 @@
 ## Front Cover Notes
 **Suggested title:** The Life of Saint Joseph as Revealed by Mystics  
 **Subtitle / bottom line:** Bonus section: Prayers and Litanies to Saint Joseph  
-**Image suggestion:** Carl Heinrich Bloch–style painting of Saint Joseph in his carpenter’s workshop, the Child Jesus seated nearby holding a small bird. (Generated reference available in project artifacts.)  
+**Image suggestion (public domain):** Bartolomé Esteban Murillo, *The Holy Family with a Little Bird* (c. 1650, Museo del Prado). Workshop scene with the Child Jesus holding a bird while Saint Joseph works nearby. Wikimedia Commons: https://commons.wikimedia.org/wiki/File:Sagrada_Familia_del_pajarito_(Murillo).jpg  
+**Alternative:** Georges de La Tour, *Saint Joseph the Carpenter* (c. 1642, Louvre). Intimate candlelit workshop scene. Wikimedia Commons: https://commons.wikimedia.org/wiki/File:Georges_de_La_Tour._St._Joseph,_the_Carpenter.JPG  
 **Cover text (top):** Joseph was silent in the Bible, but this book will help us learn more about him so we can follow his example in action.
 
 ## Introduction
@@ -140,7 +141,8 @@ Saint Joseph’s silence was not emptiness; it was the silence of a man whose ha
 
 ## Back Cover Text
 
-**Suggested image:** Traditional painting of Saint Joseph holding the Child Jesus, with a lily staff nearby (Bloch-style reference generated in project artifacts).
+**Suggested image (public domain):** Georges de La Tour, *Saint Joseph the Carpenter* (c. 1642, Louvre). Wikimedia Commons: https://commons.wikimedia.org/wiki/File:Georges_de_La_Tour._St._Joseph,_the_Carpenter.JPG  
+**Or:** Bartolomé Esteban Murillo, *The Holy Family with a Little Bird* (c. 1650). Wikimedia Commons: https://commons.wikimedia.org/wiki/File:Sagrada_Familia_del_pajarito_(Murillo).jpg
 
 **Suggested quote:**  
 “St. Joseph was an ordinary sort of man on whom God relied to do great things. He did exactly what the Lord wanted him to do, in each and every event that went to make up his life.”  
