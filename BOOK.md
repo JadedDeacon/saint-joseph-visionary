@@ -80,7 +80,103 @@ Immediately the holy spouse arose full of solicitude and sorrow. Entering upon h
 
 ## Part II: Devotions and Prayers through the Centuries
 
-(Outline and full prayer texts to be expanded in subsequent updates. Traditional prayers with modern “you/your” language, capitalized divine pronouns, sources, and chapter cross-references will be added here.)
+### Chapter 1: Major Traditional Prayers and Practices
+
+These prayers use modern English (“you” and “your”) with capitalized divine pronouns. Sources and approximate dates are given so the reader may know their origin.
+
+#### Litany of Saint Joseph
+(Promulgated by Pope Pius X, 1909; enriched with indulgences.)
+
+Lord, have mercy on us.  
+Christ, have mercy on us.  
+Lord, have mercy on us. Christ, hear us.  
+Christ, graciously hear us.  
+God the Father of Heaven, have mercy on us.  
+God the Son, Redeemer of the world, have mercy on us.  
+God the Holy Spirit, have mercy on us.  
+Holy Trinity, one God, have mercy on us.  
+Holy Mary, pray for us.  
+Saint Joseph, pray for us.  
+Illustrious son of David, pray for us.  
+Light of Patriarchs, pray for us.  
+Spouse of the Mother of God, pray for us.  
+Chaste guardian of the Virgin, pray for us.  
+Foster father of the Son of God, pray for us.  
+Diligent protector of Christ, pray for us.  
+Head of the Holy Family, pray for us.  
+Joseph most just, pray for us.  
+Joseph most chaste, pray for us.  
+Joseph most prudent, pray for us.  
+Joseph most strong, pray for us.  
+Joseph most obedient, pray for us.  
+Joseph most faithful, pray for us.  
+Mirror of patience, pray for us.  
+Lover of poverty, pray for us.  
+Model of artisans, pray for us.  
+Glory of home life, pray for us.  
+Guardian of virgins, pray for us.  
+Pillar of families, pray for us.  
+Solace of the wretched, pray for us.  
+Hope of the sick, pray for us.  
+Patron of the dying, pray for us.  
+Terror of demons, pray for us.  
+Protector of Holy Church, pray for us.  
+Lamb of God, who take away the sins of the world, spare us, O Lord.  
+Lamb of God, who take away the sins of the world, graciously hear us, O Lord.  
+Lamb of God, who take away the sins of the world, have mercy on us.  
+He made him the lord of His household, and prince over all His possessions.  
+Let us pray:  
+O God, in Your ineffable providence You were pleased to choose Blessed Joseph to be the spouse of Your most holy Mother; grant, we beg You, that we may be worthy to have him for our intercessor in heaven whom on earth we venerate as our Protector. Who live and reign world without end. Amen.
+
+*(Read more about the events of Saint Joseph’s life in Chapters 1–4 of Part I.)*
+
+#### Ad te, beate Ioseph (To You, O Blessed Joseph)
+(Pope Leo XIII, 1889, in the encyclical *Quamquam Pluries*.)
+
+To you, O blessed Joseph, do we come in our tribulation, and having implored the help of your most holy Spouse, we confidently invoke your patronage also. Through that charity which bound you to the Immaculate Virgin Mother of God and through the paternal love with which you embraced the Child Jesus, we humbly beg you graciously to regard the inheritance which Jesus Christ has purchased by His Blood, and with your power and strength to aid us in our necessities.  
+O most watchful guardian of the Holy Family, defend the chosen children of Jesus Christ; O most loving father, ward off from us every contagion of error and corrupting influence; O our most mighty protector, be kind to us and from heaven assist us in our struggle with the power of darkness.  
+As once you rescued the Child Jesus from deadly peril, so now protect God’s Holy Church from the snares of the enemy and from all adversity; shield, too, each one of us by your constant protection, so that, supported by your example and your aid, we may be able to live piously, to die in holiness, and to obtain eternal happiness in heaven. Amen.
+
+*(Read more about the Flight into Egypt in Chapter 4 of Part I.)*
+
+#### Memorare to Saint Joseph
+(Traditional, popularized in the 19th century; attributed in some sources to the 17th century.)
+
+Remember, O most pure spouse of the Virgin Mary, that never was it known that anyone who implored your help and sought your intercession was left unaided. Full of confidence in your power, I fly unto you and beg your protection. Despise not, O foster father of the Redeemer, my humble supplication, but in your bounty hear and answer me. Amen.
+
+#### Prayer for a Happy Death
+(Traditional, widely circulated from the 19th century.)
+
+O Saint Joseph, whose protection is so great, so strong, so prompt before the throne of God, I place in you all my interests and desires.  
+O Saint Joseph, assist me by your powerful intercession, and obtain for me from your divine Son all spiritual blessings, through Jesus Christ, our Lord, so that, having engaged here below your heavenly power, I may offer my thanksgiving and homage to the most loving of fathers.  
+O Saint Joseph, I never weary of contemplating you and Jesus asleep in your arms. I dare not approach while He reposes near your heart. Press Him in my name and kiss His fine head for me, and ask Him to return the kiss when I draw my dying breath.  
+Saint Joseph, Patron of departing souls, pray for us. Amen.
+
+*(Read more about the Holy Death in the chapter of that name in Part I.)*
+
+#### Prayer for Fathers
+(Traditional modern adaptation.)
+
+O Saint Joseph, foster father of our Lord Jesus Christ and true spouse of the Virgin Mary, pray for us and for all fathers, that they may be faithful to their vocation, strong in faith, pure of heart, and diligent in providing for their families. Obtain for them the grace to lead their children to Heaven by word and by example. Amen.
+
+#### Prayer for Purity
+(Traditional.)
+
+O Saint Joseph, father and protector of virgins, to whose faithful keeping Christ Jesus, innocence itself, and Mary, the virgin of virgins, were entrusted, I pray and beseech you by that twofold and most precious charge, by Jesus and Mary, to preserve me from every defilement of mind and body, that I may always serve Jesus and Mary in perfect chastity. Amen.
+
+### Chapter 2: Non-Written Traditions of Saint Joseph
+Traditions concerning Saint Joseph’s flowering staff, his age, the tools of his trade, and the location of his relics have circulated for centuries. Many are corroborated by the mystics already cited in Part I (especially Mary of Ágreda and Anne Catherine Emmerich). These oral and artistic traditions are presented here for edification.
+
+### Chapter 3: The First Hymn to Saint Joseph and the Origin of Musical Notation
+The earliest known hymn addressed to Saint Joseph appears in the medieval period. A brief note on the development of Western musical notation will be placed here so that the reader may see how the devotion that began in silence came to be sung.
+
+## Conclusion
+
+Knowledge is important, but action is probably more important. Blessed Josemaría Escrivá spoke of Saint Joseph as the model of work and prayer united. Love without action is meaningless. God does not need us to respond, but He wants us to respond with action. Even the devil knows some of the mysteries that we cannot comprehend, but he does not love God. The way he chose to hate God was through his lack of service.
+
+## Back Cover Text
+
+(Placeholder for back cover text, image, and list of mystics used.)
 
 ## Conclusion
 
