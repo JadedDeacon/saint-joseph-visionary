@@ -53,46 +53,17 @@ And after they had gone away, behold, an Angel of the Lord appeared in sleep to 
 **From Venerable Mary of Ágreda, *Mystical City of God*, Book IV**  
 Immediately the holy spouse arose full of solicitude and sorrow. Entering upon her retirement, he said: “My Lady, God wills that we should be afflicted; for his holy angel has announced to me the pleasure and the decree of the Almighty, that we arise and fly with the Child into Egypt, because Herod is seeking to take away its life. Encourage thyself, my Lady, to bear the labors of this journey and tell me what I can do for thy comfort, since I hold my life and being at the service of thy Child and of Thee.” “My husband and my master,” answered the Queen, “if we have received from the hands of the Most High such great blessings of grace, it is meet that we joyfully accept temporal afflictions. We bear with us the Creator of heaven and earth; if He has placed us so near to Him, what arms shall be able to harm us, even if it be the arm of Herod? Wherever we carry with us all our Good, the highest treasure of heaven, our Lord, our guide and true light, there can be no desert; but He is our rest, our portion, and our country.” Our heavenly Pilgrims left Jerusalem and entered upon their banishment while yet the silence and obscurity of night held sway. Their holy guardian angels instructed the heavenly Queen and saint Joseph, that They were to settle in this city [Heliopolis].
 
-### Chapter: Non-Written Traditions of Saint Joseph
-The flowering staff appears in the apocryphal Protoevangelium of James and Gospel of Pseudo-Matthew (a dove emerges from the rod); the Golden Legend later adds the flowering detail. Ágreda’s account of the blossoming staff and descending dove at the betrothal is consistent with the tradition in spirit. Emmerich’s visions of the selection process also include a miraculous indication. The artistic lily-staff is a medieval development of this legend, not a scriptural detail. Local relic traditions (the staff in Naples, said to have arrived via England) lack a continuous early chain and are recorded as pious custom only. Joseph’s age is portrayed as mature rather than elderly in the fuller visionary accounts (Baij, Emmerich).
-
 ### Chapter: The Holy Death
 **From Venerable Mary of Ágreda**  
 Perceiving, in her exalted wisdom, that the day and hour for his departure from this cumbrous earth was very near, the loving Lady betook Herself to her blessed Son and said to Him: “Lord God Most High, Son of the eternal Father and Savior of the world, by thy divine light I see the hour approaching which thou hast decreed for the death of thy servant Joseph. I beseech Thee, by thy ancient mercies and by thy infinite bounty, to assist him in that hour by thy almighty power.” The last words which saint Joseph spoke to his Spouse were: “Blessed art Thou among all women and elect of all the creatures. Let angels and men praise Thee; let all the generations know, praise and exalt thy dignity; and may in Thee be known, adored and exalted the name of the Most High through all the coming ages; may He be eternally praised for having created Thee so pleasing in his eyes and in the sight of all the blessed spirits. I hope to enjoy thy sight in the heavenly fatherland.” Then this man of God, turning toward Christ, our Lord, in profoundest reverence, wished to kneel before Him. But the sweetest Jesus, coming near, received him in his arms, where, reclining his head upon them, Joseph said: “My highest Lord and God, Son of the eternal Father, Creator and Redeemer of the World, give thy blessing to thy servant and the works of thy hand; pardon, O most merciful King, the faults which I have committed in thy service and interactions. I extol and magnify Thee and render eternal and heartfelt thanks to Thee for having, in thy ineffable condescension, chosen me to be the spouse of thy true Mother; let thy greatness and glory be my thanksgiving for all eternity.” The most fortunate of men, saint Joseph reached an age of sixty years and a few days.
 
-## Part II: Major Traditional Prayers and Practices to Saint Joseph
+## Part II: Devotions and Prayers through the Centuries
+
+### Chapter 1: Major Traditional Prayers and Practices to Saint Joseph
 
 This chapter gathers the principal traditional prayers and practices so that they may be opened and prayed directly.
 
-### The First Hymn to Saint Joseph and the Origin of Musical Notation
-The earliest widely attested hymn specifically addressed to Saint Joseph is the medieval sequence *Salve Pater Salvatoris*. It appears in manuscript sources from the fourteenth century onward and is sometimes linked to the circle of Adam of Saint-Victor or later medieval sequences in the same rhythmic style. Full Latin text (representative stanzas):
-
-Salve, pater Salvatoris,  
-Salve, custos Redemptoris,  
-Joseph ter amabilis.  
-
-Salve, sponse Matris Dei,  
-Salve, hospes Jesu mei,  
-Joseph ter mirabilis.  
-
-Dulces cunae, dulces panni,  
-Dulces dies, dulces anni,  
-Dum visitasti Dominum.  
-
-O quam fuit admiranda  
-Tua vita veneranda,  
-Portans Dei Filium.
-
-English rendering:  
-Hail, father of the Savior, hail, guardian of the Redeemer, Joseph thrice lovable.  
-Hail, spouse of the Mother of God, hail, host of my Jesus, Joseph thrice wonderful.  
-Sweet cradle, sweet swaddling clothes, sweet days, sweet years, while you attended the Lord.  
-How admirable was your venerable life, carrying the Son of God.
-
-**Origin of Western Musical Notation**  
-The earliest practical Western notation for chant appears in the ninth century in the form of neumes (from the Greek *neuma*, “sign”). These were heighted or unheighted marks placed above the text to indicate the general contour of the melody. By the early eleventh century, Guido d’Arezzo (c. 991–after 1033) introduced the four-line staff and the solmization syllables (*ut, re, mi, fa, sol, la*), allowing precise pitch indication. The *Salve Pater Salvatoris* and similar medieval sequences were originally sung from neumatic or early staff notation of this type. A modern transcription from a fourteenth-century source can be supplied in a later edition.
-
-### Litany of Saint Joseph
+#### Litany of Saint Joseph
 Approved for public use by Pope Saint Pius X in 1909.  
 Lord, have mercy. Christ, have mercy. Lord, have mercy.  
 God, the Father of Heaven, have mercy on us.  
@@ -133,13 +104,13 @@ Let us pray: O God, in Your ineffable providence You were pleased to choose Bles
 
 *Read more in the chapters on Genealogy and Betrothal, the Hidden Years, and the Holy Death.*
 
-### Ad te, beate Ioseph (Prayer after the Rosary)
+#### Ad te, beate Ioseph (Prayer after the Rosary)
 Appended by Pope Leo XIII to the encyclical *Quamquam pluries* (15 August 1889).  
 To you, O blessed Joseph, we have recourse in our affliction, and having implored the help of your thrice-holy Spouse, we now, with hearts filled with confidence, earnestly beg you also to take us under your protection. By that charity wherewith you were united to the Immaculate Virgin Mother of God, and by that fatherly love with which you cherished the Child Jesus, we beseech you and we humbly pray that you will look down with gracious eye upon that inheritance which Jesus Christ purchased by His Blood, and will succor us in our need by your power and strength. Defend, O most watchful guardian of the Holy Family, the chosen offspring of Jesus Christ. Keep from us, O most loving Father, all blight of error and corruption. Aid us from on high, most valiant defender, in this conflict with the powers of darkness. And even as of old you did rescue the Child Jesus from the peril of His life, so now defend God’s Holy Church from the snares of the enemy and from all adversity. Shield us ever under your patronage, that, following your example and strengthened by your help, we may live a holy life, die a happy death, and attain to everlasting bliss in Heaven. Amen.
 
 *Read more in the chapters on the Flight into Egypt, the Hidden Years, and Non-Written Traditions.*
 
-### Devotion to the Seven Sorrows and Seven Joys of Saint Joseph
+#### Devotion to the Seven Sorrows and Seven Joys of Saint Joseph
 Traditional devotion (often prayed on the seven Sundays preceding the Solemnity of Saint Joseph). Structure: for each sorrow and joy, recite the corresponding prayer, then Our Father, Hail Mary, and Glory Be.
 
 1. Sorrow: The doubt of Saint Joseph (Saint Matthew 1:19). Joy: The message of the Angel (Saint Matthew 1:20).  
@@ -170,47 +141,78 @@ Our Father. Hail Mary. Glory Be.
 By the sorrow of the three days’ loss and the joy of finding the Child, obtain for us the grace never to lose Jesus and always to find Him.  
 Our Father. Hail Mary. Glory Be.
 
-### Memorare to Saint Joseph
+#### Memorare to Saint Joseph
 Traditional form.  
 Remember, most pure spouse of Mary, ever Virgin, my loving protector, Saint Joseph, that no one ever had recourse to your protection or asked for your aid without obtaining relief. Confiding, therefore, in your goodness, I come before you and humbly implore you. Despise not my petitions, virgin father of the Redeemer, but graciously receive them. Amen.
 
 *Read more in the chapters on Genealogy and Betrothal and the Holy Death.*
 
-### Ancient Prayer for Protection
+#### Ancient Prayer for Protection
 Traditional prayer of long standing (modern English form; often associated with early Christian devotion).  
 O Saint Joseph, whose protection is so great, so strong, so prompt before the throne of God, I place in you all my interests and desires. O Saint Joseph, do assist me by your powerful intercession and obtain for me from your Divine Son all spiritual blessings through Jesus Christ, our Lord; so that having engaged here below your heavenly power, I may offer my thanksgiving and homage to the most loving of Fathers. O Saint Joseph, I never weary contemplating you and Jesus asleep in your arms. I dare not approach while He reposes near your heart. Press Him in my name and kiss His fine head for me, and ask Him to return the kiss when I draw my dying breath. Saint Joseph, patron of departing souls, pray for us. Amen.
 
 *Read more in the chapters on the Nativity Details and the Holy Death.*
 
-### Prayer for a Happy Death
+#### Prayer for a Happy Death
 Traditional.  
 O blessed Joseph, who yielded up your last breath in the arms of Jesus and Mary, obtain for me this grace, O holy Joseph, that I may breathe forth my soul in praise, saying in spirit, if I am unable to do so in words: Jesus, Mary and Joseph, I give you my heart and my soul. Amen.
 
-### Cord of Saint Joseph
+#### Cord of Saint Joseph
 Origin: Antwerp, 1657, after the miraculous cure of an Augustinian nun who wore a cord blessed in honor of Saint Joseph. Approved by the Sacred Congregation of Rites (1859) and enriched with indulgences by Pope Pius IX.  
 The cord is of white thread or cotton, ending in seven knots (for the seven sorrows and joys). It is blessed by a priest and worn as a girdle under the clothing. Daily practice: recite the Glory Be seven times, once on each knot, together with the Prayer for Purity:  
 O Guardian of virgins and holy father Joseph, to whose faithful custody Christ Jesus, Innocence itself, and Mary, Virgin of virgins, were committed; I pray and beseech you, by these dear pledges, Jesus and Mary, that, being preserved from all uncleanness, I may with spotless mind, pure heart, and chaste body, ever serve Jesus and Mary most chastely all the days of my life. Amen.
 
-### Thirty Days’ Prayer to Saint Joseph
+#### Thirty Days’ Prayer to Saint Joseph
 Traditional devotion in honor of the thirty years Saint Joseph is believed to have spent with Jesus and Mary. Recite daily for thirty consecutive days for any special intention.  
 Ever blessed and glorious Saint Joseph, kind and loving father, and helpful friend of all in sorrow! You are the good father and protector of orphans, the defender of the defenseless, the patron of those in need and sorrow. Look kindly on my request. My sins have drawn down on me the just displeasure of my God, and so I am surrounded with unhappiness. To you, loving guardian of the Family of Nazareth, do I go for help and protection. Listen, then, I beg you, with fatherly concern, to my earnest prayers, and obtain for me the favors I ask. I ask it by the infinite mercy of the Eternal Son of God, which moved Him to take our nature and to be born into this world of sorrow. I ask it by the weariness and suffering you endured when you found no shelter at the inn of Bethlehem for the holy Virgin, nor a house where the Son of God could be born. Then, being everywhere refused, you had to allow the Queen of Heaven to give birth to the world’s Redeemer in a cave. I ask it by the loveliness and power of that sacred Name, Jesus, which you conferred on the adorable Infant. I ask it by that painful torture you felt at the prophecy of holy Simeon, which declared the Child Jesus and His holy Mother future victims of our sins and of their great love for us. I ask it through your sorrow and joy when the Angel declared to you that the Child Jesus was conceived by the Holy Spirit. I ask it by your glorious privilege of living in the company of Jesus and Mary, and by your holy death in their presence. O good father! I beg you, by all your sufferings, sorrows, and joys, to hear me and obtain for me what I ask. (Here name the petition.) Obtain for all those who have asked my prayers everything that is useful to them in the plan of God. Finally, my dear patron and father, be with me and all who are dear to me in our last moments, that we may eternally sing the praises of Jesus, Mary and Joseph. Amen.
 
 *Read more in the chapters on the Journey to Bethlehem and the Nativity Details.*
 
-### Prayer to Saint Joseph for Fathers
+#### Prayer to Saint Joseph for Fathers
 Attributed to Blessed Pope John XXIII.  
 Saint Joseph, guardian of Jesus and chaste husband of Mary, you passed your life in loving fulfillment of duty. You supported the Holy Family of Nazareth with the work of your hands. Kindly protect those who trustingly come to you. You know their aspirations, their hardships, their hopes. They look to you because they know you will understand and protect them. You too knew trial, labor and weariness. But amid the worries of material life, your soul was full of deep peace and sang out in true joy through intimacy with God’s Son entrusted to you and Mary, His tender Mother. Assure those you protect that they do not labor alone. Teach them to find Jesus near them and to watch over Him faithfully as you have done. Amen.
 
-### Prayer to Saint Joseph for Purity
+#### Prayer to Saint Joseph for Purity
 Traditional prayer associated with the Cord of Saint Joseph (indulgenced).  
 Guardian of virgins and holy father Joseph, to whose faithful custody Christ Jesus, Innocence itself, and Mary, Virgin of virgins, were committed; I pray and beseech you, by these dear pledges, Jesus and Mary, that, being preserved from all uncleanness, I may with spotless mind, pure heart, and chaste body, ever serve Jesus and Mary most chastely all the days of my life. Amen.
 
-### Indulgenced Ejaculations and Shorter Invocations
+#### Indulgenced Ejaculations and Shorter Invocations
 - Jesus, Mary, and Joseph! (Indulgence of 7 years, Pius X, 1906.)  
 - Jesus, Mary, and good Joseph, bless us now and in the agony of death. (Indulgence of 50 days, Pius X, 1906.)  
 - O Joseph, virgin father of Jesus, most pure spouse of the Virgin Mary, pray for us daily to the Son of God, that, armed with the weapons of His grace, we may fight as we ought in life and be crowned by Him in death. Amen. (Indulgence of 100 days, twice a day, Pius X, 1906.)  
 - Guardian of virgins and holy father Joseph, to whose faithful custody Christ Jesus, Innocence itself, and Mary, Virgin of virgins, were committed; I pray and beseech you, by these dear pledges, Jesus and Mary, that, being preserved from all uncleanness, I may with spotless mind, pure heart, and chaste body, ever serve Jesus and Mary most chastely all the days of my life. Amen. (Indulgence of 100 days, once a day.)  
 - Saint Joseph, model and patron of those who love the Sacred Heart of Jesus, pray for us. (Indulgence of 100 days, once a day, Leo XIII, 1891.)
+
+### Chapter 2: Non-Written Traditions of Saint Joseph
+The flowering staff appears in the apocryphal Protoevangelium of James and Gospel of Pseudo-Matthew (a dove emerges from the rod); the Golden Legend later adds the flowering detail. Ágreda’s account of the blossoming staff and descending dove at the betrothal is consistent with the tradition in spirit. Emmerich’s visions of the selection process also include a miraculous indication. The artistic lily-staff is a medieval development of this legend, not a scriptural detail. Local relic traditions (the staff in Naples, said to have arrived via England) lack a continuous early chain and are recorded as pious custom only. Joseph’s age is portrayed as mature rather than elderly in the fuller visionary accounts (Baij, Emmerich).
+
+### Chapter 3: The First Hymn to Saint Joseph and the Origin of Musical Notation
+The earliest widely attested hymn specifically addressed to Saint Joseph is the medieval sequence *Salve Pater Salvatoris*. It appears in manuscript sources from the fourteenth century onward and is sometimes linked to the circle of Adam of Saint-Victor or later medieval sequences in the same rhythmic style. Full Latin text (representative stanzas):
+
+Salve, pater Salvatoris,  
+Salve, custos Redemptoris,  
+Joseph ter amabilis.  
+
+Salve, sponse Matris Dei,  
+Salve, hospes Jesu mei,  
+Joseph ter mirabilis.  
+
+Dulces cunae, dulces panni,  
+Dulces dies, dulces anni,  
+Dum visitasti Dominum.  
+
+O quam fuit admiranda  
+Tua vita veneranda,  
+Portans Dei Filium.
+
+English rendering:  
+Hail, father of the Savior, hail, guardian of the Redeemer, Joseph thrice lovable.  
+Hail, spouse of the Mother of God, hail, host of my Jesus, Joseph thrice wonderful.  
+Sweet cradle, sweet swaddling clothes, sweet days, sweet years, while you attended the Lord.  
+How admirable was your venerable life, carrying the Son of God.
+
+**Origin of Western Musical Notation**  
+The earliest practical Western notation for chant appears in the ninth century in the form of neumes (from the Greek *neuma*, “sign”). These were heighted or unheighted marks placed above the text to indicate the general contour of the melody. By the early eleventh century, Guido d’Arezzo (c. 991–after 1033) introduced the four-line staff and the solmization syllables (*ut, re, mi, fa, sol, la*), allowing precise pitch indication. The *Salve Pater Salvatoris* and similar medieval sequences were originally sung from neumatic or early staff notation of this type. A modern transcription from a fourteenth-century source can be supplied in a later edition.
 
 ## Conclusion: Knowledge and Action
 
