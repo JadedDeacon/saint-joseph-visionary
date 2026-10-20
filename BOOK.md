@@ -164,6 +164,37 @@ O Saint Joseph, foster father of our Lord Jesus Christ and true spouse of the Vi
 
 O Saint Joseph, father and protector of virgins, to whose faithful keeping Christ Jesus, innocence itself, and Mary, the virgin of virgins, were entrusted, I pray and beseech you by that twofold and most precious charge, by Jesus and Mary, to preserve me from every defilement of mind and body, that I may always serve Jesus and Mary in perfect chastity. Amen.
 
+#### The Seven Sorrows and Seven Joys of Saint Joseph
+(Traditional devotion, popularized from the 16th–17th centuries.)
+
+The Seven Sorrows:  
+1. The doubt of Saint Joseph.  
+2. The poverty of Jesus’ birth.  
+3. The Circumcision.  
+4. The prophecy of Simeon.  
+5. The Flight into Egypt.  
+6. The return from Egypt.  
+7. The loss of the Child Jesus.  
+
+The Seven Joys:  
+1. The message of the Angel.  
+2. The birth of Jesus.  
+3. The Holy Name of Jesus.  
+4. The effects of the Redemption.  
+5. The overthrow of the idols of Egypt.  
+6. The life with Jesus and Mary at Nazareth.  
+7. The finding of Jesus in the Temple.  
+
+*(Meditate on these in light of the Scripture and mystic accounts in Part I, Chapters 1–4.)*
+
+#### The Cord of Saint Joseph
+(Approved devotion; associated with a confraternity established in the 19th century.)
+
+The cord is worn as a sign of devotion to Saint Joseph and as a reminder of purity and protection. It is blessed and accompanied by prayers for chastity and a happy death.
+
+#### Novena to Saint Joseph and the Thirty-Day Devotion
+Traditional novenas (nine days) and the longer Thirty-Day devotion to Saint Joseph are widely practiced, especially in preparation for his feast (March 19) or for special needs. The classic form includes daily prayers to Saint Joseph as protector of the Church and of families.
+
 ### Chapter 2: Non-Written Traditions of Saint Joseph
 
 Many details about Saint Joseph that are not recorded in the Gospels have been handed down through oral tradition, apocryphal writings, artistic convention, and the private revelations of approved mystics. These are presented here for edification, not as equal to Scripture.
@@ -189,20 +220,23 @@ Various traditions locate the staff of Saint Joseph, the tools of his trade, or 
 These non-written traditions are consistent with the character of the just man presented in the Gospels and are supported by the longer extracts from the approved mystics already given in Part I.
 
 ### Chapter 3: The First Hymn to Saint Joseph and the Origin of Musical Notation
-The earliest known hymn addressed to Saint Joseph appears in the medieval period. A brief note on the development of Western musical notation will be placed here so that the reader may see how the devotion that began in silence came to be sung.
+The earliest known Latin hymn addressed to Saint Joseph is *Te Joseph celebrent agmina caelitum* (“Let the hosts of heaven praise you, O Joseph”), which appears in medieval liturgical books and was later included in the Roman Breviary. It praises Joseph as the spouse of the Virgin and the guardian of the Redeemer.
+
+Western musical notation developed gradually from the neumes of the early Middle Ages (9th–10th centuries) into the staff notation associated with Guido of Arezzo (11th century). The singing of this and later hymns to Saint Joseph shows how the devotion that began in the silence of the Gospels became part of the sung prayer of the Church for centuries.
+
+*(The full text of the hymn and a short historical note on notation will be expanded in a future revision.)*
 
 ## Conclusion
 
-Knowledge is important, but action is probably more important. Blessed Josemaría Escrivá spoke of Saint Joseph as the model of work and prayer united. Love without action is meaningless. God does not need us to respond, but He wants us to respond with action. Even the devil knows some of the mysteries that we cannot comprehend, but he does not love God. The way he chose to hate God was through his lack of service.
+Knowledge is important, but action is probably more important. Blessed Josemaría Escrivá wrote of Saint Joseph: “In human life, Joseph was Jesus’ master in their daily contact, full of refined affection, glad to deny himself in order to take better care of Jesus. And Jesus is the one who has taught us how to work: ‘My Father is working still, and I am working’ (John 5:17). Joseph, in his work, was the instrument used by God to teach Jesus how to work. And this is the great lesson of the Gospel: that work is a participation in the creative activity of God.” Love without action is meaningless. God does not need us to respond, but He wants us to respond with action. Even the devil knows some of the mysteries that we cannot comprehend, but he does not love God. The way he chose to hate God was through his lack of service.
 
 ## Back Cover Text
 
-(Placeholder for back cover text, image, and list of mystics used.)
+The Life of Saint Joseph as Revealed by Mystics  
+Bonus section: Prayers and Litanies to Saint Joseph  
 
-## Conclusion
+Mystics and sources used: Saint Bridget of Sweden, Venerable Mary of Ágreda, Blessed Anne Catherine Emmerich, and traditional Catholic devotion through the centuries.
 
-Knowledge is important, but action is probably more important. Blessed Josemaría Escrivá spoke of Saint Joseph as the model of work and prayer united. Love without action is meaningless. God does not need us to respond, but He wants us to respond with action. Even the devil knows some of the mysteries that we cannot comprehend, but he does not love God. The way he chose to hate God was through his lack of service.
-
-## Back Cover Text
+Image: Bartolomé Esteban Murillo, *The Holy Family with a Little Bird* (public domain).
 
 (Placeholder for back cover text, image, and list of mystics used.)
