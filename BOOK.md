@@ -79,12 +79,24 @@ And after the days of her purification were fulfilled, according to the law of M
 **From Blessed Anne Catherine Emmerich**  
 I saw the Holy Family enter the Temple. Joseph carried the Child, and Mary walked beside him. They went to the place of purification and offered the two young pigeons. Simeon, led by the Holy Spirit, came forward and took the Child into his arms. He blessed God and spoke the words of the Nunc Dimittis. Then he turned to Mary and spoke the prophecy of the sword. Anna also came and gave thanks. Joseph stood quietly, receiving all with deep reverence and supporting Mary in her joy and in the shadow of the prophecy.
 
+**Further from Blessed Anne Catherine Emmerich**  
+Joseph held the two young pigeons in his hands as they approached the place of offering. He remained standing a little behind Mary while Simeon held the Child. When the prophecy of the sword was spoken, Joseph’s face showed both sorrow and acceptance. He said nothing, but he drew closer to Mary and remained with her while Anna spoke. Afterward he helped them leave the Temple, carrying the Child again as they walked.
+
+**From Venerable Mary of Ágreda**  
+Saint Joseph presented the Child according to the law, offering the poor man’s sacrifice with perfect interior reverence. He heard the words of Simeon and understood that suffering would come to the Mother and the Son. He accepted this in silence and renewed his resolution to protect them both for as long as God should will.
+
 ### Chapter 4: The Angel’s Warning and the Flight into Egypt (Saint Matthew 2:13–15)
 **Scripture (Catholic Public Domain Version)**  
 And after they had gone away, behold, an Angel of the Lord appeared in sleep to Joseph, saying: “Rise up, and take the boy and his mother, and flee into Egypt. And remain there until I shall tell you. For it will happen that Herod will seek the boy to destroy him.” And getting up, he took the boy and his mother by night, and withdrew into Egypt. And he remained there, until the death of Herod, in order to fulfill what was spoken by the Lord through the prophet, saying: “Out of Egypt, I called my son.” (Saint Matthew 2:13–15)
 
 **From Venerable Mary of Ágreda, *Mystical City of God*, Book IV**  
 Immediately the holy spouse arose full of solicitude and sorrow. Entering upon her retirement, he said: “My Lady, God wills that we should be afflicted; for his holy angel has announced to me the pleasure and the decree of the Almighty, that we arise and fly with the Child into Egypt, because Herod is seeking to take away its life. Encourage thyself, my Lady, to bear the labors of this journey and tell me what I can do for thy comfort, since I hold my life and being at the service of thy Child and of Thee.” “My husband and my master,” answered the Queen, “if we have received from the hands of the Most High such great blessings of grace, it is meet that we joyfully accept temporal afflictions. We bear with us the Creator of heaven and earth; if He has placed us so near to Him, what arms shall be able to harm us, even if it be the arm of Herod? Wherever we carry with us all our Good, the highest treasure of heaven, our Lord, our guide and true light, there can be no desert; but He is our rest, our portion, and our country.” Our heavenly Pilgrims left Jerusalem and entered upon their banishment while yet the silence and obscurity of night held sway. Their holy guardian angels instructed the heavenly Queen and saint Joseph, that They were to settle in this city [Heliopolis].
+
+**Further from Venerable Mary of Ágreda**  
+Saint Joseph took the Child and His Mother by night. He led the ass on which Mary rode, carrying the Infant. They traveled in silence through difficult paths, Joseph often walking ahead to find the way or to shield them from danger. When they rested he prepared what little food and shelter he could. Throughout the journey he remained alert, obedient to every interior light given by the angels, and never complained of the hardship.
+
+**From Blessed Anne Catherine Emmerich**  
+I saw them leave in the night. Joseph carried a small bundle of tools and provisions. He walked beside the ass, sometimes steadying the Child when the path was rough. They stopped only when necessary. Joseph’s face was grave but peaceful. He trusted the angel’s word and kept watch while Mary and the Child rested.
 
 ### Chapter 5: The Return from Egypt (Saint Matthew 2:19–23)
 **Scripture (Catholic Public Domain Version)**  
