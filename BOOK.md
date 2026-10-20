@@ -1,6 +1,10 @@
 # Saint Joseph: Silent in the Bible, Man of Action
 
-Joseph was silent in the Bible, but this book will help us learn more about him so we can learn by his example and follow his example in action. Like he was a man of action and not words.
+## Front Cover Notes
+**Suggested title:** The Life of Saint Joseph as Revealed by Mystics  
+**Subtitle / bottom line:** Bonus section: Prayers and Litanies to Saint Joseph  
+**Image suggestion:** Carl Heinrich Bloch–style painting of Saint Joseph in his carpenter’s workshop, the Child Jesus seated nearby holding a small bird. (Generated reference available in project artifacts.)  
+**Cover text (top):** Joseph was silent in the Bible, but this book will help us learn more about him so we can follow his example in action.
 
 ## Introduction
 Joseph was silent in the Bible, but this book will help us learn more about him so we can learn by his example and follow his example in action. Like he was a man of action and not words.
@@ -89,7 +93,7 @@ The earliest practical Western notation for chant appears in the ninth century i
 
 ### Litany of Saint Joseph
 Approved for public use by Pope Saint Pius X in 1909.  
-[Full text retained.]
+[Full text retained from previous versions.]
 
 ### Ad te, beate Ioseph (Prayer after the Rosary)
 Appended by Pope Leo XIII to the encyclical *Quamquam pluries* (15 August 1889).  
@@ -133,6 +137,25 @@ Knowledge is important, but action is probably more important. Saint Joseph show
 Love without action is meaningless. God does not need us to respond, but He wants us to respond with action. Even the devil knows some of the mysteries that we cannot comprehend. But he does not love God. And the way he chose to hate God was through his lack of service.
 
 Saint Joseph’s silence was not emptiness; it was the silence of a man whose hands were busy with the work God gave him. May we learn from him to turn what we know into what we do.
+
+## Back Cover Text
+
+**Suggested image:** Traditional painting of Saint Joseph holding the Child Jesus, with a lily staff nearby (Bloch-style reference generated in project artifacts).
+
+**Suggested quote:**  
+“St. Joseph was an ordinary sort of man on whom God relied to do great things. He did exactly what the Lord wanted him to do, in each and every event that went to make up his life.”  
+— Blessed Josemaría Escrivá
+
+**Or this prayer excerpt:**  
+“O Saint Joseph, whose protection is so great, so strong, so prompt before the throne of God, I place in you all my interests and desires.”
+
+**Mystics and sources drawn upon in this volume:**  
+- Saint Bridget of Sweden (*Revelations*)  
+- Venerable Mary of Ágreda (*Mystical City of God*)  
+- Blessed Anne Catherine Emmerich (*The Life of the Blessed Virgin Mary* and related visions)  
+- Additional traditional and non-written accounts cross-checked against these and related approved private revelations
+
+[Space for additional back-cover blurb, endorsements, or short description of the book.]
 
 ---
 
