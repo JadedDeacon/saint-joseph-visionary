@@ -2,7 +2,11 @@
 
 Joseph was silent in the Bible, but this book will help us learn more about him so we can learn by his example and follow his example in action. Like he was a man of action and not words.
 
-## Part I: The Life of Saint Joseph as Seen in Scripture and the Mystics
+## Introduction
+Joseph was silent in the Bible, but this book will help us learn more about him so we can learn by his example and follow his example in action. Like he was a man of action and not words.
+[Full introduction to be expanded.]
+
+## Part I: The Silent Man of Action — Scripture Paired with Mystic Accounts
 
 ### Chapter: Saint Joseph Prefigured in the Old Testament and His Parents and Tribe
 Scripture supplies no direct prophecy naming Joseph, but the Davidic lineage is explicit. Saint Matthew 1:16 (CPDV): “And Jacob conceived Joseph, the husband of Mary, of whom was born Jesus, who is called Christ.” Saint Luke 3:23 (CPDV) traces the line through Heli. The tribe is Judah through David.
@@ -44,7 +48,7 @@ The flowering staff appears in the apocryphal Protoevangelium of James and Gospe
 **From Venerable Mary of Ágreda**  
 Perceiving, in her exalted wisdom, that the day and hour for his departure from this cumbrous earth was very near, the loving Lady betook Herself to her blessed Son and said to Him: “Lord God Most High, Son of the eternal Father and Savior of the world, by thy divine light I see the hour approaching which thou hast decreed for the death of thy servant Joseph. I beseech Thee, by thy ancient mercies and by thy infinite bounty, to assist him in that hour by thy almighty power.” The last words which saint Joseph spoke to his Spouse were: “Blessed art Thou among all women and elect of all the creatures. Let angels and men praise Thee; let all the generations know, praise and exalt thy dignity; and may in Thee be known, adored and exalted the name of the Most High through all the coming ages; may He be eternally praised for having created Thee so pleasing in his eyes and in the sight of all the blessed spirits. I hope to enjoy thy sight in the heavenly fatherland.” Then this man of God, turning toward Christ, our Lord, in profoundest reverence, wished to kneel before Him. But the sweetest Jesus, coming near, received him in his arms, where, reclining his head upon them, Joseph said: “My highest Lord and God, Son of the eternal Father, Creator and Redeemer of the World, give thy blessing to thy servant and the works of thy hand; pardon, O most merciful King, the faults which I have committed in thy service and interactions. I extol and magnify Thee and render eternal and heartfelt thanks to Thee for having, in thy ineffable condescension, chosen me to be the spouse of thy true Mother; let thy greatness and glory be my thanksgiving for all eternity.” The most fortunate of men, saint Joseph reached an age of sixty years and a few days.
 
-## Part II: Devotions and Traditional Prayers to Saint Joseph
+## Part II: Devotions and Prayers Through the Centuries
 
 ### Litany of Saint Joseph
 Approved for public use by Pope Saint Pius X in 1909.  
@@ -87,11 +91,42 @@ Let us pray: O God, in Your ineffable providence You were pleased to choose Bles
 
 *Read more in the chapters on Genealogy and Betrothal, the Hidden Years, and the Holy Death.*
 
-### Ancient Prayer to Saint Joseph
-Traditional prayer of long standing (often associated with early Christian devotion; modern English form).  
-O Saint Joseph, whose protection is so great, so strong, so prompt before the throne of God, I place in you all my interests and desires. O Saint Joseph, do assist me by your powerful intercession and obtain for me from your Divine Son all spiritual blessings through Jesus Christ, our Lord; so that having engaged here below your heavenly power, I may offer my thanksgiving and homage to the most loving of Fathers. O Saint Joseph, I never weary contemplating you and Jesus asleep in your arms. I dare not approach while He reposes near your heart. Press Him in my name and kiss His fine head for me, and ask Him to return the kiss when I draw my dying breath. Saint Joseph, patron of departing souls, pray for us. Amen.
+### Ad te, beate Ioseph (Prayer after the Rosary)
+Appended by Pope Leo XIII to the encyclical *Quamquam pluries* (15 August 1889).  
+To you, O blessed Joseph, we have recourse in our affliction, and having implored the help of your thrice-holy Spouse, we now, with hearts filled with confidence, earnestly beg you also to take us under your protection. By that charity wherewith you were united to the Immaculate Virgin Mother of God, and by that fatherly love with which you cherished the Child Jesus, we beseech you and we humbly pray that you will look down with gracious eye upon that inheritance which Jesus Christ purchased by His Blood, and will succor us in our need by your power and strength. Defend, O most watchful guardian of the Holy Family, the chosen offspring of Jesus Christ. Keep from us, O most loving Father, all blight of error and corruption. Aid us from on high, most valiant defender, in this conflict with the powers of darkness. And even as of old you did rescue the Child Jesus from the peril of His life, so now defend God’s Holy Church from the snares of the enemy and from all adversity. Shield us ever under your patronage, that, following your example and strengthened by your help, we may live a holy life, die a happy death, and attain to everlasting bliss in Heaven. Amen.
 
-*Read more in the chapters on the Nativity Details and the Holy Death.*
+*Read more in the chapters on the Flight into Egypt, the Hidden Years, and Non-Written Traditions.*
+
+### Devotion to the Seven Sorrows and Seven Joys of Saint Joseph
+Traditional devotion (often prayed on the seven Sundays preceding the Solemnity of Saint Joseph). Structure: for each sorrow and joy, recite the corresponding prayer, then Our Father, Hail Mary, and Glory Be.
+
+1. Sorrow: The doubt of Saint Joseph (Saint Matthew 1:19). Joy: The message of the Angel (Saint Matthew 1:20).  
+O chaste Spouse of Mary most holy, glorious Saint Joseph, great was the trouble and anguish of your heart when you were minded to put away privately your inviolate Spouse, yet your joy was unspeakable when the surpassing mystery of the Incarnation was made known to you by the Angel. By this sorrow and this joy, we implore you to obtain for us the grace of surmounting all anxiety.  
+Our Father. Hail Mary. Glory Be.
+
+2. Sorrow: The poverty of the Nativity (Saint Luke 2:7). Joy: The birth of the Savior and the angelic praise.  
+O most happy Patriarch, glorious Saint Joseph, your sorrow in beholding the poverty of the Child Jesus in His birth was changed into heavenly delight by hearing the angelic harmony. By this sorrow and joy, we beseech you that after this life we may hear the angelic praises.  
+Our Father. Hail Mary. Glory Be.
+
+3. Sorrow: The Circumcision (Saint Luke 2:21). Joy: The privilege of naming Him Jesus.  
+O most excellent observer of the divine law, glorious Saint Joseph, your heart was pierced when the Precious Blood of the Infant Savior was shed, but the Name of Jesus brought you new life and heavenly joy. By this sorrow and joy, obtain for us that the merits of this Blood may be applied to our souls.  
+Our Father. Hail Mary. Glory Be.
+
+4. Sorrow: The prophecy of Simeon (Saint Luke 2:34–35). Joy: The prophecy of the rising of many.  
+Saint Joseph, faithful partner in the mysteries of Redemption, the prophecy of Simeon foretelling the sufferings of Jesus and Mary caused you deep pain, but his prediction of the salvation of innumerable souls filled you with joy. By this sorrow and joy, obtain for us compassion on the sorrows of Mary and a share in the salvation Christ brought.  
+Our Father. Hail Mary. Glory Be.
+
+5. Sorrow: The Flight into Egypt (Saint Matthew 2:13–14). Joy: The overthrow of the idols.  
+Saint Joseph, watchful guardian, great was your toil in the flight into Egypt, but great your joy in having God Himself always with you and in seeing the idols overthrown. By this sorrow and joy, grant that no earthly affection may occupy our hearts.  
+Our Father. Hail Mary. Glory Be.
+
+6. Sorrow: The return from Egypt and the fear of Archelaus. Joy: The safe return to Nazareth and the hidden life.  
+By the sorrow of the return and the joy of dwelling safely with Jesus and Mary, obtain for us a life of quiet fidelity.  
+Our Father. Hail Mary. Glory Be.
+
+7. Sorrow: The loss of the Child Jesus in the Temple (Saint Luke 2:43–45). Joy: Finding Him again (Saint Luke 2:46).  
+By the sorrow of the three days’ loss and the joy of finding the Child, obtain for us the grace never to lose Jesus and always to find Him.  
+Our Father. Hail Mary. Glory Be.
 
 ### Memorare to Saint Joseph
 Traditional form.  
@@ -99,17 +134,33 @@ Remember, most pure spouse of Mary, ever Virgin, my loving protector, Saint Jose
 
 *Read more in the chapters on Genealogy and Betrothal and the Holy Death.*
 
-### Prayer to Saint Joseph after the Rosary
-Appended by Pope Leo XIII to the encyclical *Quamquam pluries* (15 August 1889).  
-To you, O blessed Joseph, we have recourse in our affliction, and having implored the help of your thrice-holy Spouse, we now, with hearts filled with confidence, earnestly beg you also to take us under your protection. By that charity wherewith you were united to the Immaculate Virgin Mother of God, and by that fatherly love with which you cherished the Child Jesus, we beseech you and we humbly pray that you will look down with gracious eye upon that inheritance which Jesus Christ purchased by His Blood, and will succor us in our need by your power and strength. Defend, O most watchful guardian of the Holy Family, the chosen offspring of Jesus Christ. Keep from us, O most loving Father, all blight of error and corruption. Aid us from on high, most valiant defender, in this conflict with the powers of darkness. And even as of old you did rescue the Child Jesus from the peril of His life, so now defend God’s Holy Church from the snares of the enemy and from all adversity. Shield us ever under your patronage, that, following your example and strengthened by your help, we may live a holy life, die a happy death, and attain to everlasting bliss in Heaven. Amen.
+### Ancient Prayer for Protection
+Traditional prayer of long standing (modern English form; often associated with early Christian devotion).  
+O Saint Joseph, whose protection is so great, so strong, so prompt before the throne of God, I place in you all my interests and desires. O Saint Joseph, do assist me by your powerful intercession and obtain for me from your Divine Son all spiritual blessings through Jesus Christ, our Lord; so that having engaged here below your heavenly power, I may offer my thanksgiving and homage to the most loving of Fathers. O Saint Joseph, I never weary contemplating you and Jesus asleep in your arms. I dare not approach while He reposes near your heart. Press Him in my name and kiss His fine head for me, and ask Him to return the kiss when I draw my dying breath. Saint Joseph, patron of departing souls, pray for us. Amen.
 
-*Read more in the chapters on the Flight into Egypt, the Hidden Years, and Non-Written Traditions.*
+*Read more in the chapters on the Nativity Details and the Holy Death.*
 
-### Thirty Days’ Prayer to Saint Joseph (opening)
+### Prayer for a Happy Death
 Traditional.  
-Ever blessed and glorious Saint Joseph, kind and loving father, and helpful friend of all in sorrow! You are the good father and protector of orphans, the defender of the defenseless, the patron of those in need and sorrow. Look kindly on my request. My sins have drawn down on me the just displeasure of my God, and so I am surrounded with unhappiness. To you, loving guardian of the Family of Nazareth, do I go for help and protection. Listen, then, I beg you, with fatherly concern, to my earnest prayers, and obtain for me the favors I ask. I ask it by the infinite mercy of the Eternal Son of God, which moved Him to take our nature and to be born into this world of sorrow. I ask it by the weariness and suffering you endured when you found no shelter at the inn of Bethlehem for the holy Virgin, nor a house where the Son of God could be born. Then, being everywhere refused, you had to allow the Queen of Heaven to give birth to the world’s Redeemer in a cave. Amen.
+O blessed Joseph, who yielded up your last breath in the arms of Jesus and Mary, obtain for me this grace, O holy Joseph, that I may breathe forth my soul in praise, saying in spirit, if I am unable to do so in words: Jesus, Mary and Joseph, I give you my heart and my soul. Amen.
+
+### Cord of Saint Joseph
+Origin: Antwerp, 1657, after the miraculous cure of an Augustinian nun who wore a cord blessed in honor of Saint Joseph. Approved by the Sacred Congregation of Rites (1859) and enriched with indulgences by Pope Pius IX.  
+The cord is of white thread or cotton, ending in seven knots (for the seven sorrows and joys). It is blessed by a priest and worn as a girdle under the clothing. Daily practice: recite the Glory Be seven times, once on each knot, together with the Prayer for Purity:  
+O Guardian of virgins and holy father Joseph, to whose faithful custody Christ Jesus, Innocence itself, and Mary, Virgin of virgins, were committed; I pray and beseech you, by these dear pledges, Jesus and Mary, that, being preserved from all uncleanness, I may with spotless mind, pure heart, and chaste body, ever serve Jesus and Mary most chastely all the days of my life. Amen.
+
+### Thirty Days’ Prayer to Saint Joseph
+Traditional devotion in honor of the thirty years Saint Joseph is believed to have spent with Jesus and Mary. Recite daily for thirty consecutive days for any special intention.  
+Ever blessed and glorious Saint Joseph, kind and loving father, and helpful friend of all in sorrow! You are the good father and protector of orphans, the defender of the defenseless, the patron of those in need and sorrow. Look kindly on my request. My sins have drawn down on me the just displeasure of my God, and so I am surrounded with unhappiness. To you, loving guardian of the Family of Nazareth, do I go for help and protection. Listen, then, I beg you, with fatherly concern, to my earnest prayers, and obtain for me the favors I ask. I ask it by the infinite mercy of the Eternal Son of God, which moved Him to take our nature and to be born into this world of sorrow. I ask it by the weariness and suffering you endured when you found no shelter at the inn of Bethlehem for the holy Virgin, nor a house where the Son of God could be born. Then, being everywhere refused, you had to allow the Queen of Heaven to give birth to the world’s Redeemer in a cave. I ask it by the loveliness and power of that sacred Name, Jesus, which you conferred on the adorable Infant. I ask it by that painful torture you felt at the prophecy of holy Simeon, which declared the Child Jesus and His holy Mother future victims of our sins and of their great love for us. I ask it through your sorrow and joy when the Angel declared to you that the Child Jesus was conceived by the Holy Spirit. I ask it by your glorious privilege of living in the company of Jesus and Mary, and by your holy death in their presence. O good father! I beg you, by all your sufferings, sorrows, and joys, to hear me and obtain for me what I ask. (Here name the petition.) Obtain for all those who have asked my prayers everything that is useful to them in the plan of God. Finally, my dear patron and father, be with me and all who are dear to me in our last moments, that we may eternally sing the praises of Jesus, Mary and Joseph. Amen.
 
 *Read more in the chapters on the Journey to Bethlehem and the Nativity Details.*
+
+### Indulgenced Ejaculations and Shorter Invocations
+- Jesus, Mary, and Joseph! (Indulgence of 7 years, Pius X, 1906.)  
+- Jesus, Mary, and good Joseph, bless us now and in the agony of death. (Indulgence of 50 days, Pius X, 1906.)  
+- O Joseph, virgin father of Jesus, most pure spouse of the Virgin Mary, pray for us daily to the Son of God, that, armed with the weapons of His grace, we may fight as we ought in life and be crowned by Him in death. Amen. (Indulgence of 100 days, twice a day, Pius X, 1906.)  
+- Guardian of virgins and holy father Joseph, to whose faithful custody Christ Jesus, Innocence itself, and Mary, Virgin of virgins, were committed; I pray and beseech you, by these dear pledges, Jesus and Mary, that, being preserved from all uncleanness, I may with spotless mind, pure heart, and chaste body, ever serve Jesus and Mary most chastely all the days of my life. Amen. (Indulgence of 100 days, once a day.)  
+- Saint Joseph, model and patron of those who love the Sacred Heart of Jesus, pray for us. (Indulgence of 100 days, once a day, Leo XIII, 1891.)
 
 ---
 
