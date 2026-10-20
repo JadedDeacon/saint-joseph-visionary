@@ -88,7 +88,35 @@ And his parents went every year to Jerusalem, at the solemnity of the Passover. 
 **From Blessed Anne Catherine Emmerich**  
 Joseph and Mary searched for three days. When they found Him in the Temple, Joseph stood in quiet sorrow and reverence while Mary spoke. Jesus returned with them to Nazareth and was subject to them. Joseph continued his work, and the Holy Family lived in hidden obedience.
 
+### Additional Scripture References to Saint Joseph
+These shorter passages also name Joseph or identify Jesus as his son. They are given here in the Catholic Public Domain Version so that every biblical mention is present.
+
+**Saint Luke 1:27**  
+To a virgin betrothed to a man whose name was Joseph, of the house of David; and the virgin’s name was Mary.
+
+**Saint Luke 2:33**  
+And his father and mother were wondering over these things, which were spoken about him.
+
+**Saint Luke 3:23**  
+And Jesus himself was beginning about the age of thirty years, being (as it was supposed) the son of Joseph, who was of Heli, who was of Mathat...
+
+**Saint Luke 4:22**  
+And all gave testimony to him. And they wondered at the words of grace that proceeded from his mouth. And they said, “Is this not the son of Joseph?”
+
+**Saint Matthew 13:55**  
+Is this not the son of the carpenter? Is not his mother called Mary, and his brothers, James and Joseph and Simon and Jude?
+
+**Saint Mark 6:3**  
+Is this not the carpenter, the son of Mary, the brother of James and Joseph and Jude and Simon? Are not also his sisters here with us?
+
+**Saint John 1:45**  
+Philip found Nathanael, and he said to him, “We have found him about whom Moses in the Law, and also the Prophets, wrote: Jesus the son of Joseph, from Nazareth.”
+
+**Saint John 6:42**  
+And they said, “Is this not Jesus, the son of Joseph, whose father and mother we know? How then can he say, ‘I descended from heaven’?”
+
 ### Chapter: The Holy Death
+
 
 **From Venerable Mary of Ágreda**  
 (Full text retained from prior version — placeholder for complete extract.)
