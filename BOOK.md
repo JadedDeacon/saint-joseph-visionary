@@ -74,7 +74,22 @@ And after they had gone away, behold, an Angel of the Lord appeared in sleep to 
 **From Venerable Mary of Ágreda, *Mystical City of God*, Book IV**  
 Immediately the holy spouse arose full of solicitude and sorrow. Entering upon her retirement, he said: “My Lady, God wills that we should be afflicted; for his holy angel has announced to me the pleasure and the decree of the Almighty, that we arise and fly with the Child into Egypt, because Herod is seeking to take away its life. Encourage thyself, my Lady, to bear the labors of this journey and tell me what I can do for thy comfort, since I hold my life and being at the service of thy Child and of Thee.” “My husband and my master,” answered the Queen, “if we have received from the hands of the Most High such great blessings of grace, it is meet that we joyfully accept temporal afflictions. We bear with us the Creator of heaven and earth; if He has placed us so near to Him, what arms shall be able to harm us, even if it be the arm of Herod? Wherever we carry with us all our Good, the highest treasure of heaven, our Lord, our guide and true light, there can be no desert; but He is our rest, our portion, and our country.” Our heavenly Pilgrims left Jerusalem and entered upon their banishment while yet the silence and obscurity of night held sway. Their holy guardian angels instructed the heavenly Queen and saint Joseph, that They were to settle in this city [Heliopolis].
 
+### Chapter 5: The Return from Egypt (Saint Matthew 2:19–23)
+**Scripture (Catholic Public Domain Version)**  
+Then, when Herod had died, behold, an Angel of the Lord appeared in sleep to Joseph in Egypt, saying: “Rise up, and take the boy and his mother, and go into the land of Israel. For those who sought the life of the boy have died.” And rising up, he took the boy and his mother, and he went into the land of Israel. Then, hearing that Archelaus reigned in Judea in place of his father Herod, he was afraid to go there. And being warned in sleep, he withdrew into parts of Galilee. And arriving, he dwelt in a city which is called Nazareth, in order to fulfill what was spoken through the prophets: “For he shall be called a Nazarene.” (Saint Matthew 2:19–23)
+
+**From Venerable Mary of Ágreda**  
+(The angel again appeared to Joseph in sleep and commanded the return. Joseph, ever obedient, took the Child and His Mother and journeyed back. Learning of Archelaus, he was further directed to Galilee, where they settled in Nazareth.)
+
+### Chapter 6: The Finding in the Temple (Saint Luke 2:41–52)
+**Scripture (Catholic Public Domain Version)**  
+And his parents went every year to Jerusalem, at the solemnity of the Passover. And when he was twelve years old, they ascended to Jerusalem, according to the custom of the feast day. And having completed the days, when they returned, the boy Jesus remained in Jerusalem. And his parents did not realize this. But, supposing that he was in the company, they went a day’s journey, and they sought him among their relatives and acquaintances. And not finding him, they returned to Jerusalem, seeking him. And it happened that, after three days, they found him in the temple, sitting in the midst of the doctors, listening to them and asking them questions. But all who listened to him were astonished at his prudence and at his responses. And seeing him, they wondered. And his mother said to him: “Son, why have you acted this way toward us? Behold, your father and I were seeking you in sorrow.” And he said to them: “How is it that you were seeking me? For did you not know that it is necessary for me to be in these things which are of my Father?” And they did not understand the word that he spoke to them. And he descended with them and went to Nazareth. And he was subordinate to them. And his mother kept all these words in her heart. And Jesus advanced in wisdom, and in age, and in grace, with God and men. (Saint Luke 2:41–52)
+
+**From Blessed Anne Catherine Emmerich**  
+Joseph and Mary searched for three days. When they found Him in the Temple, Joseph stood in quiet sorrow and reverence while Mary spoke. Jesus returned with them to Nazareth and was subject to them. Joseph continued his work, and the Holy Family lived in hidden obedience.
+
 ### Chapter: The Holy Death
+
 **From Venerable Mary of Ágreda**  
 (Full text retained from prior version — placeholder for complete extract.)
 
