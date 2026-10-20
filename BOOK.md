@@ -8,8 +8,14 @@
 **Cover text (top):** Joseph was silent in the Bible, but this book will help us learn more about him so we can follow his example in action.
 
 ## Introduction
-Joseph was silent in the Bible, but this book will help us learn more about him so we can learn by his example and follow his example in action. Like he was a man of action and not words.
-[Full introduction to be expanded.]
+
+Joseph was silent in the Bible. The Gospels record no spoken words from him. He appears in a handful of verses in Saint Matthew and Saint Luke, then disappears from the narrative. Yet those few scenes show a man who listened, decided, and acted. He protected the Child and His Mother. He worked with his hands. He obeyed the Angel’s warnings without delay. He is the model of a just man whose life was spent in service rather than speech.
+
+This book follows the same format as the Visionary Bible. Each chapter of Part I pairs the canonical Scripture (Catholic Public Domain Version) with longer extracts from approved private revelations and mystical writings. The accounts of Saint Bridget of Sweden, Venerable Mary of Ágreda, and Blessed Anne Catherine Emmerich are given so that we may contemplate the same events from a different angle—not as a substitute for the Gospels, but as a help to enter more deeply into the silence and the action of Saint Joseph.
+
+Part II gathers the principal traditional prayers, litanies, and practices that the Church has handed down through the centuries. These are offered so that the reader may open the book and pray. A short note on the earliest hymn addressed to Saint Joseph and the origin of Western musical notation appears as well, because the devotion that began in silence has been sung for centuries.
+
+Private revelations are presented for edification only. They are not equal to Scripture and do not add to the deposit of faith. The aim of the book is simple: to learn more about the silent man of action so that we may follow his example.
 
 ## Part I: The Silent Man of Action — Scripture Paired with Mystic Accounts
 
@@ -212,7 +218,7 @@ Sweet cradle, sweet swaddling clothes, sweet days, sweet years, while you attend
 How admirable was your venerable life, carrying the Son of God.
 
 **Origin of Western Musical Notation**  
-The earliest practical Western notation for chant appears in the ninth century in the form of neumes (from the Greek *neuma*, “sign”). These were heighted or unheighted marks placed above the text to indicate the general contour of the melody. By the early eleventh century, Guido d’Arezzo (c. 991–after 1033) introduced the four-line staff and the solmization syllables (*ut, re, mi, fa, sol, la*), allowing precise pitch indication. The *Salve Pater Salvatoris* and similar medieval sequences were originally sung from neumatic or early staff notation of this type. A modern transcription from a fourteenth-century source can be supplied in a later edition.
+The earliest practical Western notation for chant appears in the ninth century in the form of neumes (from the Greek *neuma*, “sign”). These were heighted or unheighted marks placed above the text to indicate the general contour of the melody. By the early eleventh century, Guido d’Arezzo (c. 991–after 1033) introduced the four-line staff and the solmization syllables (*ut, re, mi, fa, sol, la*), allowing precise pitch indication. The *Salve Pater Salvatoris* and similar medieval sequences were originally sung from neumatic or early staff notation of this type.
 
 ## Conclusion: Knowledge and Action
 
@@ -242,7 +248,7 @@ Saint Joseph’s silence was not emptiness; it was the silence of a man whose ha
 - Blessed Anne Catherine Emmerich (*The Life of the Blessed Virgin Mary* and related visions)  
 - Additional traditional and non-written accounts cross-checked against these and related approved private revelations
 
-[Space for additional back-cover blurb, endorsements, or short description of the book.]
+Joseph was silent in the Gospels, yet his life of work, obedience, and protection of the Holy Family offers a clear pattern for every Christian. This volume places the Scripture accounts beside longer extracts from the mystics so that readers may contemplate the same events more deeply and then turn to the traditional prayers that have been offered to him for centuries.
 
 ---
 
