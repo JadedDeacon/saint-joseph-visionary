@@ -70,6 +70,9 @@ Perceiving, in her exalted wisdom, that the day and hour for his departure from 
 This chapter gathers the principal traditional prayers and practices so that they may be opened and prayed directly.
 
 #### Litany of Saint Joseph
+**Suggested image (public domain):** Bartolomé Esteban Murillo, *The Holy Family with a Little Bird* (c. 1650). Wikimedia: https://commons.wikimedia.org/wiki/File:Bartolom%C3%A9_Esteban_Perez_Murillo_-_The_Holy_Family_with_a_Bird_-_WGA16356.jpg
+
+
 Approved for public use by Pope Saint Pius X in 1909.  
 Lord, have mercy. Christ, have mercy. Lord, have mercy.  
 God, the Father of Heaven, have mercy on us.  
@@ -117,6 +120,10 @@ To you, O blessed Joseph, we have recourse in our affliction, and having implore
 *Read more in the chapters on the Flight into Egypt, the Hidden Years, and Non-Written Traditions.*
 
 #### Devotion to the Seven Sorrows and Seven Joys of Saint Joseph
+**Suggested image (public domain):** Philippe de Champaigne, *The Dream of Saint Joseph* (1642–43, National Gallery). Wikimedia: https://commons.wikimedia.org/wiki/File:Philippe_de_Champaigne_(1602-1674)_-_The_Dream_of_Saint_Joseph_-_NG6276_-_National_Gallery.jpg
+**Alternative for joys:** Georges de La Tour, *Saint Joseph the Carpenter* (c. 1642, Louvre). Wikimedia: https://commons.wikimedia.org/wiki/File:Georges_de_La_Tour._St._Joseph,_the_Carpenter.JPG
+
+
 Traditional devotion (often prayed on the seven Sundays preceding the Solemnity of Saint Joseph). Structure: for each sorrow and joy, recite the corresponding prayer, then Our Father, Hail Mary, and Glory Be.
 
 1. Sorrow: The doubt of Saint Joseph (Saint Matthew 1:19). Joy: The message of the Angel (Saint Matthew 1:20).  
@@ -160,10 +167,16 @@ O Saint Joseph, whose protection is so great, so strong, so prompt before the th
 *Read more in the chapters on the Nativity Details and the Holy Death.*
 
 #### Prayer for a Happy Death
+**Suggested image (public domain):** Traditional depiction of the death of Saint Joseph (search Wikimedia Commons for “Death of Saint Joseph” or “Saint Joseph dying in the arms of Jesus and Mary”; many 17th–19th-century prints and paintings are public domain).
+
+
 Traditional.  
 O blessed Joseph, who yielded up your last breath in the arms of Jesus and Mary, obtain for me this grace, O holy Joseph, that I may breathe forth my soul in praise, saying in spirit, if I am unable to do so in words: Jesus, Mary and Joseph, I give you my heart and my soul. Amen.
 
 #### Cord of Saint Joseph
+**Suggested image (public domain):** Georges de La Tour, *Saint Joseph the Carpenter* (c. 1642, Louvre). Wikimedia: https://commons.wikimedia.org/wiki/File:Georges_de_La_Tour._St._Joseph,_the_Carpenter.JPG
+
+
 Origin: Antwerp, 1657, after the miraculous cure of an Augustinian nun who wore a cord blessed in honor of Saint Joseph. Approved by the Sacred Congregation of Rites (1859) and enriched with indulgences by Pope Pius IX.  
 The cord is of white thread or cotton, ending in seven knots (for the seven sorrows and joys). It is blessed by a priest and worn as a girdle under the clothing. Daily practice: recite the Glory Be seven times, once on each knot, together with the Prayer for Purity:  
 O Guardian of virgins and holy father Joseph, to whose faithful custody Christ Jesus, Innocence itself, and Mary, Virgin of virgins, were committed; I pray and beseech you, by these dear pledges, Jesus and Mary, that, being preserved from all uncleanness, I may with spotless mind, pure heart, and chaste body, ever serve Jesus and Mary most chastely all the days of my life. Amen.
@@ -175,6 +188,9 @@ Ever blessed and glorious Saint Joseph, kind and loving father, and helpful frie
 *Read more in the chapters on the Journey to Bethlehem and the Nativity Details.*
 
 #### Prayer to Saint Joseph for Fathers
+**Suggested image (public domain):** Bartolomé Esteban Murillo, *The Holy Family with a Little Bird* (c. 1650). Wikimedia: https://commons.wikimedia.org/wiki/File:Bartolom%C3%A9_Esteban_Perez_Murillo_-_The_Holy_Family_with_a_Bird_-_WGA16356.jpg
+
+
 Attributed to Blessed Pope John XXIII.  
 Saint Joseph, guardian of Jesus and chaste husband of Mary, you passed your life in loving fulfillment of duty. You supported the Holy Family of Nazareth with the work of your hands. Kindly protect those who trustingly come to you. You know their aspirations, their hardships, their hopes. They look to you because they know you will understand and protect them. You too knew trial, labor and weariness. But amid the worries of material life, your soul was full of deep peace and sang out in true joy through intimacy with God’s Son entrusted to you and Mary, His tender Mother. Assure those you protect that they do not labor alone. Teach them to find Jesus near them and to watch over Him faithfully as you have done. Amen.
 
