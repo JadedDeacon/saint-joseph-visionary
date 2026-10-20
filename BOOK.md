@@ -103,14 +103,23 @@ I saw them leave in the night. Joseph carried a small bundle of tools and provis
 Then, when Herod had died, behold, an Angel of the Lord appeared in sleep to Joseph in Egypt, saying: “Rise up, and take the boy and his mother, and go into the land of Israel. For those who sought the life of the boy have died.” And rising up, he took the boy and his mother, and he went into the land of Israel. Then, hearing that Archelaus reigned in Judea in place of his father Herod, he was afraid to go there. And being warned in sleep, he withdrew into parts of Galilee. And arriving, he dwelt in a city which is called Nazareth, in order to fulfill what was spoken through the prophets: “For he shall be called a Nazarene.” (Saint Matthew 2:19–23)
 
 **From Venerable Mary of Ágreda**  
-(The angel again appeared to Joseph in sleep and commanded the return. Joseph, ever obedient, took the Child and His Mother and journeyed back. Learning of Archelaus, he was further directed to Galilee, where they settled in Nazareth.)
+The angel again appeared to Joseph in sleep and commanded the return. Joseph, ever obedient, rose at once and informed Mary. They gathered their few possessions and began the journey back to the land of Israel. When Joseph learned that Archelaus reigned in Judea, fear came upon him for the safety of the Child. A further warning in sleep directed him toward Galilee. He led them to Nazareth, where he resumed his trade and they lived in hidden peace.
+
+**Further from Venerable Mary of Ágreda**  
+Throughout the return Joseph walked ahead or beside the ass, choosing the safest paths and providing what was needed. He spoke little, but his actions showed constant care for Mary and the Child. Once settled in Nazareth he built a simple workshop and continued to support the Holy Family by the labor of his hands, remaining in perfect obedience to every interior light.
+
+**From Blessed Anne Catherine Emmerich**  
+I saw them arrive in Nazareth. Joseph found a small house and began to work again as a carpenter. The Child grew under his care. Joseph taught Him the use of tools and the ways of ordinary labor, while remaining always in deep reverence before the mystery he guarded.
 
 ### Chapter 6: The Finding in the Temple (Saint Luke 2:41–52)
 **Scripture (Catholic Public Domain Version)**  
 And his parents went every year to Jerusalem, at the solemnity of the Passover. And when he was twelve years old, they ascended to Jerusalem, according to the custom of the feast day. And having completed the days, when they returned, the boy Jesus remained in Jerusalem. And his parents did not realize this. But, supposing that he was in the company, they went a day’s journey, and they sought him among their relatives and acquaintances. And not finding him, they returned to Jerusalem, seeking him. And it happened that, after three days, they found him in the temple, sitting in the midst of the doctors, listening to them and asking them questions. But all who listened to him were astonished at his prudence and at his responses. And seeing him, they wondered. And his mother said to him: “Son, why have you acted this way toward us? Behold, your father and I were seeking you in sorrow.” And he said to them: “How is it that you were seeking me? For did you not know that it is necessary for me to be in these things which are of my Father?” And they did not understand the word that he spoke to them. And he descended with them and went to Nazareth. And he was subordinate to them. And his mother kept all these words in her heart. And Jesus advanced in wisdom, and in age, and in grace, with God and men. (Saint Luke 2:41–52)
 
 **From Blessed Anne Catherine Emmerich**  
-Joseph and Mary searched for three days. When they found Him in the Temple, Joseph stood in quiet sorrow and reverence while Mary spoke. Jesus returned with them to Nazareth and was subject to them. Joseph continued his work, and the Holy Family lived in hidden obedience.
+Joseph and Mary searched for three days. Joseph walked the streets of Jerusalem with growing anxiety, asking among relatives and acquaintances. When they found Him in the Temple, Joseph stood a little behind Mary, his face marked by sorrow and relief. He said nothing while Mary spoke. Afterward Jesus went down with them and was subject to them. Joseph resumed his ordinary work in Nazareth, and the hidden life continued in obedience and silence.
+
+**From Venerable Mary of Ágreda**  
+Saint Joseph shared the sorrow of the three days’ search. When the Child was found he adored Him in the Temple and received Him again into his care. He understood that the time of greater separation was still distant, and he continued to fulfill his office as guardian with the same fidelity he had shown from the beginning.
 
 ### Additional Scripture References to Saint Joseph
 These shorter passages also name Joseph or identify Jesus as his son. They are given here in the Catholic Public Domain Version so that every biblical mention is present.
